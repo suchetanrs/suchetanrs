@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello there! 👋
 
 I'm Suchetan, an Electrical and Electronics undergraduate at BITS Pilani, Goa. I've been facinated with robots ever since I learned about them.
 
