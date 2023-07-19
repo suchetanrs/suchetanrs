@@ -10,7 +10,7 @@ If you are looking to collaborate with me on any autonomy based project, do hit 
 
 Please do checkout my repositories to get a better idea of my work :)
 
-You can always reach out to me via email: suchetan.work@gmail.com
+You can always reach out to me via email: rssuchetan@gmail.com
 
 
 Knock knock
